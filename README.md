@@ -1,0 +1,1 @@
+# Practica_Optimizacion_DispotivosYFormatos
